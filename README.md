@@ -1,4 +1,4 @@
-![Logo UNAHUR](./th.jfif)
+![Logo UNAHUR](./descargar.jpeg)
 
 Bienvenidos a
 # Enzo
